@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RetroBB8
-- 👀 I’m interested in videomaking
+- 👀 I’m interested in videomaking and visual design
 - 🌱 I’m currently learning coding and visual design
 - 💞️ I’m looking to collaborate on schoolprojekts only
 
